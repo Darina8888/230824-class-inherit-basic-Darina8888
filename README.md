@@ -1,0 +1,1 @@
+# 230824-class-inherit-basic-Darina8888
